@@ -1,2 +1,2 @@
 # zh1z
-![](https://media.giphy.com/media/ZbX6wqO5ran1IiJHhp/giphy.gif)
+![](https://media.giphy.com/media/hZu87GMR23I32iIl1H/giphy.gif)
